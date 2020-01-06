@@ -1,0 +1,1 @@
+# whitemore_wordpress
